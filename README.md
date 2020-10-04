@@ -1,0 +1,2 @@
+# vuonsamngoclinh.com.vn
+VƯỜN SÂM NGỌC LINH – TUẤN HẰNG Khởi nguồn từ việc mua Sâm Ngọc Linh – Nam Trà My về tẩm bổ cho người thân sau phẫu thuật. Sản phẩm rất tốt, nhưng để tìm được địa chỉ bán uy tín, giá cả phải chăng thì không dễ. Nên vợ chồng tôi đã quyết định kinh doanh Sâm Ngọc Linh và các thảo mộc quý đặc trưng của vùng núi Ngọc Linh – Nam Trà My. Chúng tôi hợp tác trực tiếp với người bản địa – phát triển bền vững, không qua trung gian để có sản phẩm chất lượng nhất và giá thành tốt nhất phục vụ các bạn. Kính mong được sự tin tưởng của mọi người.
